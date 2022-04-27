@@ -7,4 +7,4 @@
 <!---
 ihateiready-cupiditys/ihateiready-cupiditys is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
----> BRO FUCK I_READY
+---> BRO FUCK I-READY
